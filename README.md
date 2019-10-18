@@ -1,6 +1,6 @@
 ## What is this?
 
-So there is guy named Kamlesh Tiwari supposedly , we know a lot about him from Social media, i mean everything on Social Media is manufactured about him now, almost everything about him is going to false.
+So there is guy named Kamlesh Tiwari supposedly , we know a lot about him from Social media, i mean everything on Social Media is manufactured about him now, almost everything about him is going to be false.
 
 
 ## Lets go back in time 
